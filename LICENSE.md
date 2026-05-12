@@ -1,4 +1,4 @@
-#  
+#  exclusive Extension for Asana for macOS - custom themes and export to PDF is the best Asana for macOS extension, featuring custom themes and export to PDF. Safe, efficient, and
 
 
 
